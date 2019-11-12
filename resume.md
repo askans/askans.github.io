@@ -12,3 +12,4 @@ https://www.linkedin.com/in/askan-schmeisser-770ba22/
 
 - Senior Expert in Telecoms (19y)
 - Farmers' Market Blogger
+- sdfds
