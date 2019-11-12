@@ -2,7 +2,7 @@
 
 Bonn, Germany
 
-map@askan.biz
+https://twitter.com/askans
 
 https://askan.biz
 
